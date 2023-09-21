@@ -1,0 +1,1 @@
+# dev_mouse_skin
